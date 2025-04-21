@@ -1,9 +1,20 @@
-<img src="https://i.postimg.cc/Fz2spXz3/IMG-7109.png">
-## × abt me (っ´ཀ`)っ ×
-× 16, drummer, horror fan, comic collector ×
-× I have 5 face piercings !! 6 g septum, snakebites, a labret and a tongue × 
-× my ears are stretched to a 0g ×
-× my chem fan boy !! ×
-× taken >:D @dark-d0lly ×
-× asks/dms r open idc just don't be weirddd ×
-×horror fans, marauders fans, arcane fans, creepypasta fans, bone collectors, mcr fans, body mod lovers, emos, goths, vulture community, alternative ppl in general moot meee ×
+<center><img src="https://i.postimg.cc/Fz2spXz3/IMG-7109.png"></center>
+abt me (っ´ཀ`)っ 
+<br>
+☠︎︎ 18, he/him, senior in hs, my chem fanboy, music lover 
+<br>
+☠︎︎ cringe but free
+<br>
+☠︎︎ transmasc, do us both a favor and mute me if you're a transphobe
+<br>
+☠︎︎ eng speaker 
+<br>
+☠︎︎ emo fag (real) 
+<br>
+☠︎︎ taken!!
+<br>
+☠︎︎ autistic, ttgs are appreciated 
+<br>
+☠︎︎ feel free to whisper me, i don't bite
+<br>
+
