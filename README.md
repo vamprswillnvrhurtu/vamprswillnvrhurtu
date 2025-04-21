@@ -1,4 +1,4 @@
-<img src="[IMG-7109.png]">
+<img src="https://i.postimg.cc/Fz2spXz3/IMG-7109.png">
 ## × abt me (っ´ཀ`)っ ×
 × 16, drummer, horror fan, comic collector ×
 × I have 5 face piercings !! 6 g septum, snakebites, a labret and a tongue × 
