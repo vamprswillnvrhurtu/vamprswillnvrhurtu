@@ -15,6 +15,6 @@ abt me (っ´ཀ`)っ
 <br>
 ☠︎︎ autistic, ttgs are appreciated 
 <br>
-☠︎︎ feel free to whisper me, i don't bite
+☠︎︎ lowk bad at conversations..
 <br>
-
+☠︎︎ my discord: iwantacaprisun
