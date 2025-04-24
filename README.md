@@ -3,6 +3,8 @@ abt me (っ´ཀ`)っ
 <br>
 ☠︎︎ 18, he/him, senior in hs, my chem fanboy & music lover 
 <br>
+☠︎︎ afk 80% of the time, whisp me and i'll reply back when i see it!!
+<br>
 ☠︎︎ cringe but free
 <br>
 ☠︎︎ transmasc, do us both a favor and mute me if you're a transphobe
