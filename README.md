@@ -15,7 +15,7 @@ abt me (っ´ཀ`)っ
 <br>
 ☠︎︎ taken!!
 <br>
-☠︎︎ autistic, ttgs are appreciated 
+☠︎︎ neurodivergent, ttgs are appreciated 
 <br>
 ☠︎︎ lowk bad at conversations..
 <br>
