@@ -20,3 +20,5 @@ abt me (っ´ཀ`)っ
 ☠︎︎ lowk bad at conversations..
 <br>
 ☠︎︎ my discord: iwantacaprisun
+MY SOCIALS!
+[last fm](https://www.last.fm/user/urfavkilljoy) [tiktok](https://www.tiktok.com/@vamprswillnvrhurtu) [twitter](https://x.com/theghostoffin) [tumblr](https://www.tumblr.com/theghostoffin) [spacehey](https://spacehey.com/urfavkilljoy)
