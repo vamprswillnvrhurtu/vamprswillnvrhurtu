@@ -20,6 +20,7 @@ abt me (っ´ཀ`)っ
 ☠︎︎ lowk bad at conversations..
 <br>
 ☠︎︎ my discord: iwantacaprisun
+<br>
 MY SOCIALS!
-[last fm](https://www.last.fm/user/urfavkilljoy) [tiktok](https://www.tiktok.com/@vamprswillnvrhurtu) [twitter](https://x.com/theghostoffin) [tumblr](https://www.tumblr.com/theghostoffin) [spacehey](https://spacehey.com/urfavkilljoy)
-<a href="[url](https://spacehey.com/urfavkilljoy)">spacehey</a>
+<br>
+<a href="https://www.last.fm/user/urfavkilljoy">last fm</a> <a href="https://www.tiktok.com/@vamprswillnvrhurtu">tiktok</a> <a href="https://x.com/theghostoffin">twitter</a> <a href="https://www.tumblr.com/theghostoffin">tumblr</a> <a href="https://spacehey.com/urfavkilljoy">spacehey</a>
