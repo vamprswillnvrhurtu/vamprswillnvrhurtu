@@ -19,7 +19,7 @@ abt me (っ´ཀ`)っ
 <br>
 ☠︎︎ lowk bad at conversations..
 <br>
-☠︎︎ my discord: iwantacaprisun
+☠︎︎ my discord: vamprswillnvrhurtu
 <br>
 MY SOCIALS!
 <br>
