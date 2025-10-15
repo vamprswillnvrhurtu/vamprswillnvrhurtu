@@ -17,8 +17,6 @@ abt me (っ´ཀ`)っ
 <br>
 ☠︎︎ neurodivergent, ttgs are appreciated 
 <br>
-☠︎︎ lowk bad at conversations..
-<br>
 ☠︎︎ my discord: vamprswillnvrhurtu
 <br>
 MY SOCIALS!
