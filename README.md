@@ -1,7 +1,7 @@
 <center><img src="https://i.postimg.cc/Fz2spXz3/IMG-7109.png"></center>
 abt me (っ´ཀ`)っ 
 <br>
-☠︎︎ 18, he/they/it, my chem fanboy & music lover 
+☠︎︎ 18, he/him, my chem fanboy & music lover 
 <br>
 ☠︎︎ afk 80% of the time, whisp me and i'll reply back when i see it!!
 <br>
