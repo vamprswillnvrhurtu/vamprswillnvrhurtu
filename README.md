@@ -13,7 +13,6 @@ abt me (っ´ཀ`)っ
 <br>
 ☠︎︎ emo fag (real) 
 <br>
-<br>
 ☠︎︎ neurodivergent, ttgs are appreciated 
 <br>
 ☠︎︎ my discord: vamprswillnvrhurtu
