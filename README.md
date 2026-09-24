@@ -20,4 +20,4 @@ abt me (っ´ཀ`)っ
 <br>
 MY SOCIALS!
 <br>
-<a href="https://www.last.fm/user/urfavkilljoy">last fm</a> <a href="https://www.tiktok.com/@vamprswillnvrhurtu">tiktok</a> <a href="https://x.com/theghostoffin"> <a href="https://pin.it/2kZ5eTvTs">pinterest</a> <a href="https://x.com/theghostoffin"> <a href="https://spacehey.com/urfavkilljoy">spacehey</a> <a href="https://www.instagram.com/theghostoffin/?hl=en">insta</a>
+<a href="https://www.last.fm/user/urfavkilljoy">last fm</a> <a href="https://www.tiktok.com/@theghostoffin">tiktok</a> <a href="https://x.com/theghostoffin"> <a href="https://pin.it/2kZ5eTvTs">pinterest</a> <a href="https://x.com/theghostoffin"> <a href="https://spacehey.com/urfavkilljoy">spacehey</a> <a href="https://www.instagram.com/theghostoffin/?hl=en">insta</a>
